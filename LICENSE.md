@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant dexscreener sniper bot | simulation-mode + slippage-control, the #1 dexscreener sniper bot. Includes simulation-mode and slippage-control for a
 
 
 
